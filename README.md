@@ -10,4 +10,4 @@
 
 这些欧美日韩资源平台专注于中文字幕精品内容，影片涵盖从剧情片到激情片的多个分类，满足用户多样化需求。每部影片页面提供详尽信息，如分类标签、清晰度、时长及演员阵容，便于快速筛选。系统支持高清视频播放，智能适配网络状态，确保全程流畅无卡顿。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dangtho20250709/dangtho5 ）</span>
